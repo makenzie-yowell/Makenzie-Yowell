@@ -1,0 +1,7 @@
+# Makenzie-Yowell
+Copper State Victory 2026 
+LD1 Arizona 
+Arizona List 
+Youth Civics Network 
+ASU Prep Digital High School 
+https://jumble.social/notes/nevent1qvzqqqqqqypzqhgywyfpsacqzwmuxg2wnudf8d6k58lasu8rpfc9m6rghs5pv3q4qyfhwumn8ghj7mmxve3ksctfdch8qatz9uq3vamnwvaz7tmjv4kxz7fwv35hgar09ec82c30qqsxzfhhd7aw4rsc25n35mg5sy8jvqxtgmfk4veneyr6ryf9qtqw8dckuecec
